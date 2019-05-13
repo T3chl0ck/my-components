@@ -1,1 +1,1 @@
-Egyszerû lábléc
+EgyszerÅ± lÃ¡blÃ©c
